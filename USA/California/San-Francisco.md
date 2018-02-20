@@ -30,12 +30,6 @@
 * ~~[Range](http://www.rangesf.com)~~
 * [Saison](http://www.saisonsf.com) _highly recommend the Chef's Counter_
 
-## Drinking
-
-* [Bar Agricole](http://www.baragricole.com)
-* Thieves Tavern
-* Zeitgeist _only during a sunny afternoon_
-
 ## Activities
 
 * [The Marhsall Store](http://www.themarshallstore.com) _pull up on the side of the road and enjoy the view_

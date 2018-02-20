@@ -34,13 +34,6 @@
 * ~~[Nihonryori RyuGin](http://www.nihonryori-ryugin.com/index_en.html)~~
 * [Tapas Molecular Bar](http://www.mandarinoriental.com/tokyo/dining/molecular/)
 
-## Drinking
-
-* __[Bar High Five](http://www.barhighfive.com)__
-* __[BrewDog](http://www.brewdog.com/bars/roppongi)__
-* __[fuglen](http://www.fuglen.com)__
-* __[PSY](http://www.bar-psy.com)__
-
 ## Shopping
 
 * __[Sokichi Inc.](http://www.sokichi.co.jp)__
