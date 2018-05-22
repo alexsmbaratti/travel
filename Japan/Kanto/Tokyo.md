@@ -4,15 +4,19 @@
 
 ## Accommodation
 
-* [Hotel Edoya](http://www.hoteledoya.com)
+* FlexStay Inn Iidabashi
 
 ## Dining
 
 **Best American Fast Food Variant** - Subway
 
+* Mos Burger
+* One of the hundreds curry or tempura places (usually the ones with the ordering machine outside)
+
 ## Shopping
 
-* __[Sokichi Inc.](http://www.sokichi.co.jp)__
+* Pokémon Center
+* Bic Camera
 
 ## Activities
 
