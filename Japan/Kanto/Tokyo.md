@@ -1,7 +1,5 @@
 # [Tokyo](http://en.wikipedia.org/wiki/Tokyo)
 
-## Transport
-
 ## Accommodation
 
 * FlexStay Inn Iidabashi
