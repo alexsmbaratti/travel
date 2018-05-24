@@ -28,8 +28,12 @@ In my opinion, the definitive way to eat soba noodles. Usually served with all i
 
 ## Shopping
 
-* Pokémon Center
+* Pokémon Centers
+  * Mega
+  * DX
+  * Skytree
 * Bic Camera
+* Gachapon
 
 ## Activities
 
